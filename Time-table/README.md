@@ -1,11 +1,4 @@
-## нιѕℓ σf¢ ѕ¢нσσℓ🔥🎭᭄
-
-Hackers In Sri Lanka Official School
-
-Intake 24 🤝🙂
-
-
-_ Teaching System...🔥_
+## Teaching System...🔥
 
 Blogs
 
